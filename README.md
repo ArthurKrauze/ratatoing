@@ -2,7 +2,7 @@
 
 **Integrantes:** Arthur Krauze, João Vitor Simão, Pedro Henrique J
 
-🎥 **Vídeo no YouTube:** []
+🎥 **Vídeo no YouTube:** [https://youtu.be/fP1LlS-tqv4]
 
 ---
 
